@@ -6,5 +6,3 @@
 MIGHT NOT START CONVERSATIONS FIRST (But. I Really Love to Talk PLZ DONT BE SCARED)
 
 (also Im Aware my Pfp Is of Shit Quality. Sadly Dj technorchs MVs are 5 Pixels Each)
-
-TEST @arghenight 
