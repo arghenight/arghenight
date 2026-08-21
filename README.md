@@ -4,5 +4,6 @@
 
 
 LIKELY WILL NOT APPROACH FIRST (UNLESS A GREEN NAME)!!! although You can Always Sit next to Me 💗💗💗
+^ UNLESS OTHERWISE SPECIFIED
 
 Something Something of Ambrosia – Frums
