@@ -7,6 +7,6 @@ LIKELY WILL NOT APPROACH FIRST (UNLESS A GREEN NAME)!!! although You can Always 
 
 ^ UNLESS OTHERWISE SPECIFIED
 
-ILL MAKE A SEPARATE ACCOUNT FOR FOLLOWING BACK SOON.!!!!! #Beware.....
+I FB ON MY SPAM ACC!!!! unless You Followed With your Main. Then ill Follow u on This Acc 2 
 
 Something Something of Ambrosia – Frums
