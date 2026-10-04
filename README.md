@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="500" height="500" alt="HRiNVxDa0AEd0Qp" src="https://github.com/user-attachments/assets/90ad88e3-f58f-4849-8098-d87dbe5b3f64" />
+<img width="512" height="512" alt="image" src="https://github.com/user-attachments/assets/0c905e1d-4eba-48fc-bcab-8a99ab6702db" />
 
 
 LIKELY WILL NOT APPROACH FIRST (UNLESS A GREEN NAME)!!! although You can Always Sit next to Me 💗💗💗
